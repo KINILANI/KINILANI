@@ -2,7 +2,7 @@
 
 just call me marina or ramona , i pref marina.
 
-i use any pronouns and am a demigirl, also asexual and pansexual.
+i use any pronouns and am a nonbinary, also asexual and likely gay.... shrugs.
 
 i am a minor, and dont be weird or sexual, im asexual and have a partner (IM NOT AN EDATER BTW IK HIM IRL 4 THE MOST PART..) 😭
 
